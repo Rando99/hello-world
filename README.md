@@ -1,2 +1,2 @@
 # hello-world
-XD
+Olvidenlo, no quiero usar el equisde
